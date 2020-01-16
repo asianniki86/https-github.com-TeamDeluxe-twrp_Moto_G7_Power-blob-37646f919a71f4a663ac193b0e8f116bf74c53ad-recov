@@ -1,0 +1,1 @@
+# https-github.com-TeamDeluxe-twrp_Moto_G7_Power-blob-37646f919a71f4a663ac193b0e8f116bf74c53ad-recov
